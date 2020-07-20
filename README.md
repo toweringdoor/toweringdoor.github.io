@@ -1,2 +1,2 @@
 # toweringdoor.github.io
-froge yes
+bruh i'm so stupid with this github pages thing.
